@@ -13,6 +13,7 @@ If a scene opens with a shot of the exterior of a house in the bright sunshine a
 Time-lapse
 Time-lapse uses still shots of a fixed location over time; the stills are edited together to create this effect. 
 
+
 Montage
 A montage is a sequence of rapid shots used to quickly show the passage of time. 
 
