@@ -103,6 +103,7 @@ So... She told me that maybe, the girl I saw in my dreams was Death and somehow 
 After that incident, I developed emetophobia (fear of vomit) and never watched the Neverending Story film again, as the girl that I saw looked a lot like the Empress from that movie.
 
 
+
 Complete peace and serenity. Cannot be put into words. I felt something, maybe a being, guiding me with the purest and strongest love. I was about 10 at the time. Dying felt amazing, and I know this post sounds like so many other experiences, but it's true.
 A few years ago I was put under for a biopsy. That feeling was truly odd, and felt a lot more like death should have. Lights out (except there is no blackness either), no concept of time, could have been out a minute or a year and wouldn't have known the difference.
 
