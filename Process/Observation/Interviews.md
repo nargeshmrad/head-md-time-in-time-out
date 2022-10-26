@@ -14,7 +14,6 @@ Again, if I want to say a memory, the memory of the moment of watching the meteo
 
 I forget time when I am deeply happy and sad
 
-
 3.Nabat:
 In my opinion, time is formless, an empty space, its color is grey, and it means all life and existence. Sometimes I forget the time when I am very happy and having fun. The sunlight,the movement of people, and my impression of the work I did, are what reminds me of time.
 
