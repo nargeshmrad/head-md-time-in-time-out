@@ -25,3 +25,5 @@ Scent: Perfume
 Sound: Soft violin sound
 Word: trust
 Taste: sweet
+
+* They become mentally synchronized, and they have an ascending feeling. While being synchronised they cannot feel time anymore. They recognize their synchrony better when they finish it. The ending is the climax of what they experience. The contradiction is that when theis no-time moment finishes, it is one of the most precious moments of time they can explain. They can cathagorize it as the precious time they experienced. 
