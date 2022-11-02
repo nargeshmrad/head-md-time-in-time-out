@@ -13,4 +13,5 @@ It can be a practice
 
 The climax of synchronization**
 When people want to synchronize their climax together.
-There is this world where you can stop time, make all the people vanish except your loved one(for example) and start a synchrony in which you have this ascending journey. What you desire is to have a climax in this synchrony. The highest desire is to synchronize this climax with this person's climax. The obstacle is thinking about all the things that I said! If you think about it, you lose it! You may even enter to this loop of not getting what you desire. You might even lie about your desire, or say that you had experienced this climax!
+There is this world where you can stop time, make all the people vanish except your loved one(for example) and start a synchrony in which you have this ascending journey. What you desire is to have a climax in this synchrony. The highest desire is to synchronize this climax with this person's climax. The obstacle is thinking about all the things that I said! If you think about it, you lose it! You may even enter to this loop of not getting what you desire. You might even lie about your desire, or say that you had experienced this climax.
+
