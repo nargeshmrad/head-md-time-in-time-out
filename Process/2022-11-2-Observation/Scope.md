@@ -69,11 +69,3 @@ Collect all the things which can be satisfying, and the obstacles between them.
 <br> 
 
 
-
-
-
-
-
-
-
-
