@@ -60,16 +60,11 @@ sex and brutality,
 
 <br> 
 
-
-Questions:
+# Questions:
 what to do instead of interview?
 
 <br> 
 
-
-Paradoxes: 
-love and hate, 
-sex and brutality, 
 
 
 
