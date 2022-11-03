@@ -1,0 +1,1 @@
+I gathered data around saisfying activities, playing with slime for example. I listed these activities besides how could this satisfaction be completely ruined for them. I also asked my interviewees to draw their feeling of satisfaction, and the process of being satisfied. 
