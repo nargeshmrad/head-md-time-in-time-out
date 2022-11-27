@@ -32,6 +32,7 @@ These males flash late into the evening. They fly slowly, emitting 4-9 quick fla
  
 10.	Photinus carolinus
 The flashes of this species are very similar to the flashes of P. consimilis, with a slightly longer interval between sets of flashes of about 13 seconds.
+.
  
 
 
