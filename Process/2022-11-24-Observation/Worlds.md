@@ -68,15 +68,6 @@ Scope:
 
 
 
-an algorithm called cellular automata that could simulate different parts of an organism responding to stimuli, their minds went straight for the vulva.
-
-
-
-You can kiss, hug, sex with this imaginary lover, only using hand gestures.
-
-
-Even Words With Friends can be sexy as long as you set the right rules. Do certain letters mean you have to take off certain clothes? Are there rewards for numbers of points? Now apply this to multi-player video games, or apps, or literally anything that the two of you can participate in, and you’ll find the competition has a whole new meaning.
-
 
 
 
