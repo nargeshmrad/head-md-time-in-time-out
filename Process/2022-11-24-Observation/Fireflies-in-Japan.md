@@ -6,3 +6,7 @@ Merrily Baird in her Symbols of Japan: Thematic Motifs in Art and Design  notes 
 https://www.printsofjapan.com/Index_Glossary_Hoshi_thru_Hotaru.htm#:~:text=%22From%20the%20Chinese%2C%20the%20Japanese,clans%20during%20the%2012th%20century.
 
 
+
+
+![images](https://user-images.githubusercontent.com/116266413/204394506-e4158e96-0482-46e4-9072-e1b739a5e0bc.jpeg)
+![Yoshitoshi_fireflies (1)](https://user-images.githubusercontent.com/116266413/204394509-a00e185f-f316-4536-9382-e6e5bc0c5833.jpg)
