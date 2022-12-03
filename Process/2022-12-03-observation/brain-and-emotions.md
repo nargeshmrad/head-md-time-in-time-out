@@ -14,3 +14,6 @@ However, despite these differences, the researchers did find overall patterns fo
 
 
 Another question still remaining is why these different populations are intermingled in the amygdala. One hypothesis is that the cells responding to different inputs need to be able to quickly interact with each other, coordinating responses to an urgent signal, such as an alert that danger is present. “We are exploring the interactions between these different projections, and we think that could be a key to how we so quickly select an appropriate action when we’re presented with a stimulus,”
+
+
+![emotions-in-brain](https://user-images.githubusercontent.com/116266413/205445062-158d2ee5-b6f0-481f-8570-ba01bd9ced0c.JPG)
