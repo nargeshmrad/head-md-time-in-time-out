@@ -20,3 +20,6 @@ Sleep is thought to play a critical role in the process of this. Information in 
 Long-term potentiation is a form of neural plasticity and is a vital mechanism in the storage of memory.
 
 When this occurs in the hippocampus, the strongest of the circulating information then returns to the brain area where it originated from in order to turn the short-term memories into long-term memories.
+
+![161005105104-spontaneous-emotions-brain](https://user-images.githubusercontent.com/116266413/205445656-d46fc586-dea6-4778-96e7-bccd4d19aefa.jpg)
+![ever_wondered_what_causes_depression_in_your_brain_theres_a_pattern_that_might_be_behind_it_1541926553_725x725](https://user-images.githubusercontent.com/116266413/205445658-41beef2e-4335-4bc7-9335-7732f18a6e49.jpg)
