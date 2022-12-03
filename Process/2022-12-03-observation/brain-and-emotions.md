@@ -17,3 +17,6 @@ Another question still remaining is why these different populations are intermin
 
 
 ![emotions-in-brain](https://user-images.githubusercontent.com/116266413/205445062-158d2ee5-b6f0-481f-8570-ba01bd9ced0c.JPG)
+
+
+![cere_071717_figure2_cont](https://user-images.githubusercontent.com/116266413/205445331-81abf958-181e-4733-8258-de010788ed4c.jpg)
