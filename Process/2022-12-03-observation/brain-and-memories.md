@@ -16,3 +16,5 @@ Fill your home and workspace with upbeat reminders of happy times, like photos o
 
 
 To Better Regulate Emotional Reactions: To identify what produces a strong reaction in you, regularly make a list of the specific events or behaviors from the day or week that triggered your response. Then spend about 15 minutes thinking about these behaviors while breathing deeply until you feel comfortable and more relaxed.
+
+![brain-memories-lights](https://user-images.githubusercontent.com/116266413/205444735-0b269a43-ee60-4f82-80bd-08f14dd9e184.JPG)
