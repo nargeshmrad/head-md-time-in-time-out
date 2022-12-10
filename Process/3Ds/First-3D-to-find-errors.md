@@ -6,3 +6,4 @@
 2. Use Coolis to meausre LED 
 3. Create the electronics part and meaure 
 4. Ask about the tread
+5. Ask about the connection of textile and the hole for wires
