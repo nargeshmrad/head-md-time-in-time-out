@@ -79,3 +79,25 @@ Should I do this?
 <br>
 Talk to me
 <br>
+Why did this happen to us/me
+<br>
+Why didn’t I do something sooner?
+<br>
+Why did God let something like this happen?
+<br>
+How can I start to feel better?
+<br>
+How would s/he want me to move on?
+<br>
+How do I find the positive in all of this?
+<br>
+Are you angry with me?
+<br>
+Are you happy?
+<br>
+What are you doing?
+<br>
+Why don’t I feel better yet?
+<br>
+Mom, I feel ashamed that I laugh 
+<br>
