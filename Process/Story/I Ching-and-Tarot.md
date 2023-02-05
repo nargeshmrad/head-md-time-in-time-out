@@ -23,3 +23,4 @@ Grief can feel like you’re heart has been pierced. It’s a very real feeling,
 
 # Five of Cups
 The Five of Cups is perhaps the card most closely related to the emotions of loss. A dark man stands, head down, amid scattered cups, emotions spilling everywhere... But if you’ll look closely, you’ll see that of the five cups illustrated on this card, three are tipped over, yet two are still upright, full. The message of this card is clear. When struggling with grief, you must not lose sight of the good things that are still in your life. If you spend all your energy focusing on your upsetting situation, you neglect the positive. All is not lost, and there are good things right in front of you -- opening your eyes to the goodness you do have will help put perspective on feelings of trouble.
+
