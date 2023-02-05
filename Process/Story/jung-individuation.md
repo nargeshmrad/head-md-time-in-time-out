@@ -9,6 +9,7 @@ I hold this to be the highest task of a bond between two people: that each shoul
 Why Solitude is Essential
 
  
+ 
 
             Developing self-sufficiency and self-discovery are two reasons why experiencing solitude and loneliness are core features of living consciously. We can never really grow up, heal the wounds of our early life, and develop our personality without time alone with ourselves.[19] Daryl Sharp, a Jungian analyst, minces no words on this point:
 
