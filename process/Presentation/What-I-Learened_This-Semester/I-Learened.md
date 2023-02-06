@@ -3,7 +3,7 @@
 2. The interviewsw and field research has different types. You better try.
 3. Do not compare yourself to others. 
 4. Put some time to get to know others' projects in the class
-5. Do not be afraid of your stupid ideas. You are at university! You are here to learn.
+5. Do not be afraid of your stupid ideas. You are at university! You are here to learn..
 6. Always pay attention to machines not working, things not getting along with your time table when planning. Especially in the end of semester! Always try to finish everything so sooner than the deadline ( Exactly like Iran) so you are not under pressure.
 7. The last days of semester is for reflecting on your project and designing your presentation. 
 8. Each part of your project has value. Do not neglect a part for the other.
